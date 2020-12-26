@@ -1,0 +1,2 @@
+Recipe:-
+take a bowl, put a few oreos in it, pour hot milk, mix well, take a small borosil cup, fill the cup half full with the mixture, put a chocolate in the middle, fill the whole cup, put it in the microwave for 30 seconds. Your cupcakes are ready.

@@ -1,1 +1,1 @@
-# OreoChocolateCupcake
+The name of the recipe is OreoChocolateCupcake. The name of the recipie itself tells what the recipe is.
